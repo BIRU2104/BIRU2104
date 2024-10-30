@@ -12,6 +12,4 @@ vitor.emanuel.silva14@escola.pr.gov.br
 
 @Eneiasatomico
 
-
-
-https://tenor.com/pt-BR/view/saitama-solos-goku-gif-12995304310951598160
+![](https://media1.tenor.com/m/e8L_wqh-tpYAAAAC/saitama.gif)
